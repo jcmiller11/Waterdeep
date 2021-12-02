@@ -1,0 +1,1 @@
+A member of the Zhentarim. He was working with [Yalah Gralhund] and got the stone from [[Dalakhar]] after being injured when the [[Fireball Went Off]].

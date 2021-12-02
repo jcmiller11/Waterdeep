@@ -1,0 +1,1 @@
+Diedre is a Changeling Sorcerer. She was granted magical ability via a magical beast and has some dragon ancestry. She's friends with [[Bonnie]] and acts as the party's treasurer.

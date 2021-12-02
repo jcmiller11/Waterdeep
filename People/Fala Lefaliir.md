@@ -1,0 +1,1 @@
+Elvish Apothecary. A member of the Apothecaries and Physicians Guild. She met Dr. Bottomus and sold him plants and potions. They run the [[Corellon's Crown]], a potion shop, 3 story townhouse, and greenhouse all in one.

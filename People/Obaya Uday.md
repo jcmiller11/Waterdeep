@@ -1,0 +1,1 @@
+Human Cleric of Waukeen, Obaya works for someone in a different continent (xendrik or chult) and is always looking to buy magic items or help someone track them down for a fee. She is friends with [[Relic]].

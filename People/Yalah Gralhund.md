@@ -1,0 +1,1 @@
+A member of the nobility and a rich homeowner. Working with the [[Zhentarim]] until she betrayed them for the [[X Guild]] in exchange for political power.

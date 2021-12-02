@@ -1,0 +1,1 @@
+A gnome member of the Guild of Guilds. Merlyn helps folks navigate guild bureaucracy and is very good at it. He's laid back but deeply rule-oriented.

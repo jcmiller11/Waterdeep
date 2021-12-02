@@ -1,0 +1,25 @@
+The Party is composed of [[Relic]], [[Gilgamesh]], [[Diedre]], and [[Dr. Bottomus]]. They formed a party before the Events of the [[Lost Dragons of Neverember]] and were instrumental in its resolution. During their adventure, [[Relic]] was melted by a dragon's fire breath. The party owns a tavern in the North Ward on a street called Trollskull Alley. The party are members of the [[Harpers]].
+
+After meeting in a tavern, getting in a fight with the [[X Guild]] and a Troll, the party was met and hired by [[Volothamp Geddarm]] to find [[Floon Blagmar]]. He was last seen in the [[Skewered Dragon]] with [[Renaer Neverember]].
+
+They searched for clues and went to [[Old Xoblob Shop]]. They went to the [[Skewered Dragon]] and eventually found their way to a [[Zhentarim Warehouse]]. There they found a bunch of dead Zhents and X Guilders. They also found [[Renaer Neverember]] who had been hiding. They learn that the X Guild broke into attack the Zhents and take Renaer, but they took Floon by mistake. He revealed the [[Lost Dragons of Neverember]] and explained that both the Zhents and the Xs wanted to find the money. They also met [[Biggs and Wedge]] at some point.
+
+The party went into the sewers and found their way to a hideout where they fought some people, saw a mindflayer, and killed a wizard before rescuing Floon. Upon returning they were rewarded not with the promised money, but a deed to Trollskull Manor Tavern. They met Lif, and went around the neighborhood, meeting [[Fala Lefaliir]], an herbalist and apothecary operating the [[Corellon's Crown]] and [[Rishaal]] the dragonborn keeper of [[Book Wyrm's Treasure]].
+
+They bought plants and renovated the building, and met [[Mirt]] and joined the [[Harpers]]. Then a [[Fireball Went Off]] outside of the Tavern. They investigated the explosion and learned that a [[Nimblewright]] was on a roof and threw something to cause the explosion. A gnome named [[Dalakhar]] had stolen the [[Stone of Golorr]] and was taking it to the party but was being chased by [[Urstul Floxin]] and other members of the [[Zhentarim]].
+
+They also got a mission to find a Bronze Dragon [[Zelifarn]] and assess it. They also met [[Merlyn]], a member of the Guild of Guilds, and got his help in renovating the Tavern.
+
+After learning that [[Nimblewright]]s are made by the [[Temple of Gond]], the party went there to investigate, where they learned from [[Valetta]] that a Nimblewright named Nim made another Nimblewright which ended up getting loose. Nim gave the party a Nimblewright Detector to find the Nimblewright and Valetta promised to pay them to destroy it.
+
+They tracked the Nimblewright to [[Gralhund Villa]] and snuck in, meeting [[Yalah Gralhund]], and learning that she was being attacked by the [[Zhentarim]]. They followed the Nimblewright into an alley and destroyed it, finding a map in the process. The map led them to [[Mistshore]] where they met [[Grinda Garloth]] and protected her from members of the [[X Guild]] and their hired swords.
+
+In the City of the Dead the party found a key, and a dead rat, and surmised that someone killed the rat, left the key, and took the stone. They traced the key to a certain lock using the help of the Locksmith's Guild and [[Merlyn]]. They found the owner's of the lock and interrogated them and eventually killed one of them. They discovered that the thieves were working for a Halfling Necromancer named [[Losser Mirklov]].
+
+At some point a shadow comes out of [[Relic]]'s body and attacks everyone, nearly killing a couple people before exploding.
+
+They find Losser's hideout underneath a wig shop named Dandymops in the [[Trades Ward]] and infiltrate it, finding the necromancer fighting kenku from the [[X Guild]]. The Kenku steal the stone [[Stone Of Golorr]] and run off, but Gilgamesh chases them and shoots them down. The gang gets the stone! They learn the location of the vault of the [[Lost Dragons of Neverember]], which is under [[The Pink Flumph]] Theatre. They infiltrate the theater and blow open a trapdoor with a bomb, revealing a secret passageway that they take to find the vault.
+
+In the Vault they find some traps and hazards, and they find a mindflayer lab pod with weird thralls performing surgery on a mindflayer, as well as weird heiroglyphics. They also find a dwarf ([[Aurinax]]) and try to get him to give them the gold he's guarding, but they fail. Eventually they try some other stuff, they grab [[Renaer Neverember]] and take him to his mom's grave and bring him to the vault, but then they find that the [[Harpers]] have followed them and are monitoring their efforts. The party tries to get the gold again but they almost die and Relic is melted, but Renear manages to save the party somehow.
+
+But he gets attacked by weirdos with Gold Pocketwatches ([[Pocketwatchers]]) and they end up in a weird hideout in the sewers. They escape and talk to the [[Blackstaff]] and that's basically the end of the mission. They get 5000 gold as a thank you from the Blackstaff.

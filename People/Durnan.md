@@ -1,0 +1,1 @@
+Durnan is a retired adventurer and the owner of [[The Yawning Portal]]. One of the few people to ever face the [[Undermountain]] and return, Durnan did so with wealth and treasure and a new air of confidence. He's a cool, calm, if a bit gruff guy and cares about Waterdeep and its people.

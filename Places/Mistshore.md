@@ -1,0 +1,1 @@
+A neighborhood in the [[Dock Ward]]. A poor slum with a big ship full of bandits and also [[Grinda Garloth]]'s house.

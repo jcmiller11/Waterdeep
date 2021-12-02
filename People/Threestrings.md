@@ -1,0 +1,1 @@
+A Halfling Bard and a member of a secret organization known as the [[Harpers]]. Threestrings is one of the [[Party]]'s main contacts with the Harpers. He can be found at [[The Yawning Portal]] or at the Trollskull Manor Tavern, and often pops up in odd places. He's a sardonic but compassionate character and loves to use magic and persuasion to solve problems.

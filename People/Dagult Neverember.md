@@ -1,0 +1,3 @@
+The Disgraced Former Open Lord of Waterdeep. The Neverembers are a noble family, and Dagult was a good Lord of Waterdeep, until he started getting more and more reckless, gambling, engaging in strange business deals, and eventually even breaking the law. It's unclear what spurred this change, but after embezzling 500,000 GP from the city, Dagult ran away to avoid prosecution. It's thought that he's hiding out in Baldur's Gate.
+
+Dagult is the father of [[Renaer Neverember]] and was a shitty absentee father.

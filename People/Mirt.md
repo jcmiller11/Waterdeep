@@ -1,0 +1,1 @@
+A nobleman, former adventurer, member of the [[Harpers]], and a [[Masked Lord]] of [[Waterdeep]]. Mirt is fat and blonde, looks a lot like a nobleman, but is a good person and cares about the good of the world. He's a relatively high ranking member of the Harpers, to the extent that the Harpers track hierarchy. 

@@ -1,0 +1,1 @@
+A firbolg cleric. Dr. Bottomus doesn't know much about civilized folk but he learned that they care a lot about having jobs, so Dr. Bottomus seeks out jobs for money he can exchange for food and goods. He decided to call himself a doctor because it seemed that people liked people who were called doctors. He loves nature and peace. He is friends with [[Yagra Stonefist]].

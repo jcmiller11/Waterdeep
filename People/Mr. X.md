@@ -1,0 +1,2 @@
+Mr. X is the mysterious leader of the X Guild. He is (Spoiler Alert) a beholder.
+Mr. X controls the guild from the shadows, and is said to have been seen in the sewers and deep within the [[Undermountain]].

@@ -1,0 +1,1 @@
+Davil is the leader of the Doom Raiders, an adventuring party known in Waterdeep, and is secretly the leader of the separatist faction of the [[Zhentarim]]. Little is known about Davil but he was said to be involved in the events surrounding the [[Lost Dragons of Neverember]]. He works with [[Yagra Stonefist]] regularly.

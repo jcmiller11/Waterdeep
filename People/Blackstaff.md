@@ -1,0 +1,5 @@
+The Blackstaff is the name of the Staff and the Title owned by the Archmage of Waterdeep. The Archmage position is a powerful one that assists the [[Open Lord]] in many ways, including the protection of the town. The current Blackstaff is also the commander of [[Force Grey]], the elite group of adventurers working on their behalf and the behalf of the city. The blackstaff is allso the name of the magical staff wielded by the Archmage. It is intelligent and contains the spirits of the previous owners of the staff, that can converse with the wearer. The Blackstaff has control over Blackstaff tower, a tower in Waterdeep, as well as several massive statues across the city. These statues can be animated by the staff to form a powerful defensive force.
+
+The current Blackstaff is Vajra Safahr. She is motivated to protect the city, to stop the [[X Guild]], the [[Zhentarim]], and their violence.
+
+The party, after encountering the dragon in the vault, went to talk to the Blackstaff, who revealed she had been monitoring the party's antics on some level. She revealed [[Aurinax]]'s past and thanked the heroes for their help finding the gold.

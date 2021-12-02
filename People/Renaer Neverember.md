@@ -1,0 +1,1 @@
+Son of [[Dagult Neverember]], local noble. Friends with [[Floon Blagmar]] and [[Volothamp Geddarm]]. Handsome, wealthy, connected, friendly, hates his dad, hasn't seen his dad in years. Saved the party from certain death at the hands of [[Aurinax]].

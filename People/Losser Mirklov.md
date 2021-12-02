@@ -1,0 +1,1 @@
+Halfling Necromancer and weirdo. He hired graverobbers who brought him the [[Stone Of Golorr]] which they randomly found graverobbing. Then he was attacked by kenku from the [[X Guild]] and surrendered the stone. The party killed him and took his spell book.

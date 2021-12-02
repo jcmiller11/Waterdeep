@@ -1,0 +1,1 @@
+A member of the [[X Guild]]. Krentz was killed while the [[Party]] was saving [[Floon Blagmar]] from an X guild hideout in the sewers. He lost a fight to [[Yagra Stonefist]] in [[The Yawning Portal]].

@@ -1,0 +1,1 @@
+He's got more beauty than brains, I'm afraid. A dumb hunk. Friends with [[Renaer Neverember]] and [[Volothamp Geddarm]]. He was kidnapped and tortured by members of the [[X Guild]], who thought he was Renaer. Saved by the [[Party]].

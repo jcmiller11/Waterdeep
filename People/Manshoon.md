@@ -1,0 +1,1 @@
+Manshoon was a powerful Evil Wizard who founded the [[Zhentarim]], a huge criminal organization. Manshoon was killed by the good guys but he made several magical clones of himself known as simulacra, and at least one of them is still around, controlling the Black Network.

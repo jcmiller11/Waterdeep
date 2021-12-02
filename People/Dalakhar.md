@@ -1,0 +1,1 @@
+A gnome spy working for [[Dagult Neverember]]. He was spying on [[Renaer Neverember]] at some point and got killed when the [[Fireball Went Off]]. He had stolen the stone from the [[X Guild]], who mistakenly blamed the [[Zhentarim]].

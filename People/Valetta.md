@@ -1,0 +1,1 @@
+A Dragonborn inventor and leadership member of the [[Temple of Gond]]. Tried to punish Nim the [[Nimblewright]] but the party convinced her not to. Paid the party to kill the other Nimblewright and also gave them inventions.

@@ -1,0 +1,1 @@
+Home of [[Yalah Gralhund]] and her family. Zhentarim members have been living in and using the house as a base of operations. Eventually it became a warzone as Yalah betrayed the Zhentarim on behalf of the X Guild.

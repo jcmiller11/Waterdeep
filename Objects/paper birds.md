@@ -1,0 +1,1 @@
+A magical item. Paper birds deliver a written message to an intended target through magical flight. A paper bird resembles an origami crane.

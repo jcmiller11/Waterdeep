@@ -1,0 +1,1 @@
+Force Grey is an elite group of adventurers hired by the city and accountable to the Lords and [[Blackstaff]] of [[Waterdeep]]. They are hired out for high level tasks and urgent defensive deployments when the city is in dire need. The Force Grey has a larger and less skilled counterpart called the Grey Hands. Force Grey is like level 10+ and Grey Hands are more like level 1-9.

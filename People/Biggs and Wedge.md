@@ -1,0 +1,1 @@
+2 Investigators working for the City Watch. Biggs is the small one, a mage and an investigator, and Wedge is the big one, a silent sargeant of the watch who takes meticulous notes. They investigated the [[Fireball Went Off]] incident.

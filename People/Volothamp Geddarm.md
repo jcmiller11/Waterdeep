@@ -1,0 +1,1 @@
+Volo is an author, explorer, tour guide, and part-time adventurer. Fresh off the release of Volo's Guide to Monsters, Volo has currently been engaged in research for his next book, Volo's Guide to Spirits and Specters. He gave the party a deed to the Trollskull Manor Tavern after they saved Floon for him.

@@ -1,0 +1,1 @@
+A young bronze dragon living in a shipwreck in the bay. He loves asking for treasure and he's insecure about the small size of his treasure hoard.
